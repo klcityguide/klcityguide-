@@ -41,4 +41,4 @@ Your privacy should always be respected. Choose platforms that prioritize:
 - Confidential bookings
 - Clear policies
 
-For a curated directory and helpful listings, you can explore this [Premium social companion Malaysia booking guide](https://klescortlist.net), which provides
+For a curated directory and helpful listings, you can explore this [Premium social companion Malaysia booking guide](https://klescortlist.org), which provides
