@@ -82,7 +82,7 @@ Profiles should highlight communication skills, experience, and availability for
 
 Many people begin their search online using terms like **Local lifestyle companion services near me)**. It is important to use established platforms that prioritize professionalism and structured arrangements.
 
-One example is [Local lifestyle companion services near me)](https://klescortlist.com), where individuals can explore available lifestyle companion profiles and learn more about professional social support services in Kuala Lumpur.
+One example is [Local lifestyle companion services near me)](https://klescortlist.org), where individuals can explore available lifestyle companion profiles and learn more about professional social support services in Kuala Lumpur.
 
 When browsing online platforms:
 
