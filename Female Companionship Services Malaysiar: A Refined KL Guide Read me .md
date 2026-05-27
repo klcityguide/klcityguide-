@@ -90,7 +90,7 @@ By adhering to these principles, both clients and companions can have a positive
 
 ## Exploring Trusted Platforms
 
-If you are looking for a reliable starting point, you can explore curated listings such as [female companionship services Malaysiar](https://klescortlist.net). Platforms like this aim to connect users with verified profiles while maintaining a focus on professionalism and user experience.
+If you are looking for a reliable starting point, you can explore curated listings such as [female companionship services Malaysiar](https://klescortlist.org). Platforms like this aim to connect users with verified profiles while maintaining a focus on professionalism and user experience.
 
 ## The Role of Companionship in Modern Urban Life
 
