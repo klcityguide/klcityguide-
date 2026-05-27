@@ -53,7 +53,7 @@ Booking a lifestyle companion in Kota Damansara usually follows a structured and
 4. **Professional Interaction**  
    The engagement takes place in a respectful manner, aligned with the agreed terms.
 
-Reliable platforms that organize information about **[Kota Damansara premium lifestyle companion](https://klescortlist.com)** services often focus on clarity, user safety, and professionalism.
+Reliable platforms that organize information about **[Kota Damansara premium lifestyle companion](https://klescortlist.org)** services often focus on clarity, user safety, and professionalism.
 
 ## Safety, Privacy, and Ethical Standards
 
