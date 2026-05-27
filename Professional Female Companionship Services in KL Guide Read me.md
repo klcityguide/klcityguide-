@@ -55,7 +55,7 @@ Confidentiality is essential. Trusted services prioritize client privacy and mai
 
 ## Finding Trusted Platforms
 
-If you are searching for curated listings, you can explore resources such as [Professional female companionship services in KL](https://klescortlist.net). Platforms like these aim to provide structured directories where users can find verified profiles and relevant information in a safe and organized way.
+If you are searching for curated listings, you can explore resources such as [Professional female companionship services in KL](https://klescortlist.org). Platforms like these aim to provide structured directories where users can find verified profiles and relevant information in a safe and organized way.
 
 Always ensure that any platform you use aligns with legal regulations and ethical guidelines.
 
