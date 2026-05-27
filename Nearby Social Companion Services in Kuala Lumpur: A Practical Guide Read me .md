@@ -62,7 +62,7 @@ While procedures may vary, the general steps for using social companion services
 3. **Confirming Arrangements:** Agreeing on logistics, duration, and guidelines.  
 4. **Meeting in Public or Professional Settings:** Ensuring a comfortable and appropriate environment.
 
-For those researching structured listings and guidance, platforms discussing **[Nearby social companion services](https://klescortlist.com)** can provide organized information in one place.
+For those researching structured listings and guidance, platforms discussing **[Nearby social companion services](https://klescortlist.org)** can provide organized information in one place.
 
 ## Professional Etiquette and Mutual Respect
 
