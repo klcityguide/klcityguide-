@@ -41,7 +41,7 @@ Reputable services outline what is included, ensuring expectations are aligned a
 ### Ethical and Legal Awareness  
 A professional guide emphasizes compliance with local regulations and online content standards.
 
-Readers looking for structured listings and general information can refer to resources that discuss the **[KL professional companionship guide](https://klescortlist.com)** in a clear and organized way.
+Readers looking for structured listings and general information can refer to resources that discuss the **[KL professional companionship guide](https://klescortlist.org)** in a clear and organized way.
 ## Safety and Professional Standards
 
 Safety is central to any form of lifestyle support service. Both clients and service providers benefit from established standards, including:
