@@ -75,7 +75,7 @@ Booking a companion in Kuala Lumpur is typically straightforward. Most platforms
 4. **Confirm Booking:** Use a secure system to finalize your request  
 
 For a reliable starting point, you can explore options through  
-[Kuala Lumpur social support companion booking](https://klescortlist.net)
+[Kuala Lumpur social support companion booking](https://klescortlist.org)
 
 This platform provides structured information to help users connect with suitable companions in a safe and organized manner.
 
