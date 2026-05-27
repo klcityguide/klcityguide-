@@ -69,7 +69,7 @@ Checking user feedback and online reputation can provide insight into the qualit
 
 ## Finding Services in Kuala Lumpur
 
-For those exploring reputable platforms, resources like **[Premium companionship services Kota Damansara](https://klescortlist.com)** directories can help individuals discover available lifestyle companionship options in the Kuala Lumpur region.
+For those exploring reputable platforms, resources like **[Premium companionship services Kota Damansara](https://klescortlist.org)** directories can help individuals discover available lifestyle companionship options in the Kuala Lumpur region.
 
 Such platforms typically organize profiles, availability, and location information in a structured format, making it easier for users to identify suitable companionship services based on their preferences.
 
