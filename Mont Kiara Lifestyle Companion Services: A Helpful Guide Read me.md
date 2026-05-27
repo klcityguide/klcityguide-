@@ -14,7 +14,7 @@ A lifestyle companion may assist with:
 - Providing friendly company during business travel
 - Helping newcomers become familiar with the area
 
-For those looking to explore available options, platforms such as **[Mont Kiara lifestyle companion services](https://klescortlist.net)** may help users discover listings and information about local lifestyle support providers.
+For those looking to explore available options, platforms such as **[Mont Kiara lifestyle companion services](https://klescortlist.org)** may help users discover listings and information about local lifestyle support providers.
 
 ## Why Mont Kiara Is Ideal for Social Lifestyle Services
 
