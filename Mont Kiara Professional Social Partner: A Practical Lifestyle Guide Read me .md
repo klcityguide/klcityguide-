@@ -58,7 +58,7 @@ Professional services outline guidelines related to timing, conduct, and payment
 ### 4. Maintaining Professional Boundaries
 Both users and social partners are expected to follow agreed terms and respect personal and professional limits.
 
-For readers seeking structured information and listings, resources discussing **[Mont Kiara professional social partner](https://klescortlist.com)** services can offer an organized overview of available options.
+For readers seeking structured information and listings, resources discussing **[Mont Kiara professional social partner](https://klescortlist.org)** services can offer an organized overview of available options.
 
 ## Safety, Ethics, and Responsible Use
 
