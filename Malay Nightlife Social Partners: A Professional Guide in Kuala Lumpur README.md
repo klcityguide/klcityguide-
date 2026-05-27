@@ -53,7 +53,7 @@ Once both sides agree, the booking is confirmed with clear terms and guidelines.
 4. **Mutual Respect**  
 Successful engagements are built on courtesy, discretion, and respect for boundaries.
 
-For those seeking structured information and reliable listings, platforms discussing **[Malay nightlife social partners](https://klescortlist.com)** can be a useful starting point for understanding how these services are presented responsibly.
+For those seeking structured information and reliable listings, platforms discussing **[Malay nightlife social partners](https://klescortlist.org)** can be a useful starting point for understanding how these services are presented responsibly.
 
 ## Safety, Ethics, and Professional Standards
 
