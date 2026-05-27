@@ -62,7 +62,7 @@ Choose services that follow ethical guidelines and maintain clear boundaries. Pr
 #### 4. Flexibility
 A good provider should offer customizable options based on your schedule and preferences.
 
-For those exploring options, you can learn more about [Kota Damansara lifestyle companion services](https://klescortlist.net) through trusted platforms that provide structured and professional listings.
+For those exploring options, you can learn more about [Kota Damansara lifestyle companion services](https://klescortlist.org) through trusted platforms that provide structured and professional listings.
 
 ## Common Services Offered
 
