@@ -10,7 +10,7 @@ Travel companion support services focus on helping visitors feel comfortable and
 
 Some travelers may simply want someone knowledgeable about the city who can offer guidance during sightseeing, events, or city exploration. Others may appreciate help organizing schedules, finding local attractions, or attending public activities such as exhibitions or festivals.
 
-Reliable platforms that provide **[KL travel companion support services](https://klescortlist.net)** often focus on helping travelers connect with individuals who understand the city well and can assist in a respectful and professional way.
+Reliable platforms that provide **[KL travel companion support services](https://klescortlist.org)** often focus on helping travelers connect with individuals who understand the city well and can assist in a respectful and professional way.
 
 The key purpose of these services is convenience, safety, and improved travel experiences.
 
