@@ -46,7 +46,7 @@ When choosing a companionship service in Kuala Lumpur, it’s important to prior
 - **Professional conduct**: Companions who are well-presented, courteous, and respectful.
 - **Flexibility**: Options tailored to different schedules and preferences.
 
-A reputable platform like [Malaysia professional companionship services](https://klescortlist.net) can help connect users with trusted providers who meet these standards.
+A reputable platform like [Malaysia professional companionship services](https://klescortlist.org) can help connect users with trusted providers who meet these standards.
 
 ## How to Choose the Right Companion
 
