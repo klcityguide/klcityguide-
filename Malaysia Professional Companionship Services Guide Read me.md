@@ -64,7 +64,7 @@ Choose services that emphasize safety guidelines, identity verification, and cle
 ### 5. Verify Communication Standards
 Professional services maintain respectful and transparent communication before, during, and after engagements.
 
-For a curated platform offering structured options, you can explore [Malaysia professional companionship services](https://klescortlist.net) to understand how modern listings are organized and presented.
+For a curated platform offering structured options, you can explore [Malaysia professional companionship services](https://klescortlist.org) to understand how modern listings are organized and presented.
 
 ## Etiquette and Best Practices
 
