@@ -45,7 +45,7 @@ Choose services that emphasize respectful interactions and clear boundaries. Pro
 ## Benefits of Using Trusted Platforms
 
 Using a reputable platform simplifies the booking process and ensures a higher level of quality. For example, platforms offering  
-[Trusted Malay social companion booking Malaysia](https://klescortlist.net)  
+[Trusted Malay social companion booking Malaysia](https://klescortlist.org)  
 help users connect with verified individuals while maintaining safety and professionalism.
 
 Some advantages of using trusted platforms include:
