@@ -28,7 +28,7 @@ This is where **Kuala Lumpur premium networking companions** can be helpful. The
 - Knowledge of local culture, venues, and customs  
 - Discretion and reliability  
 
-You can find more information about such services through platforms like [Kuala Lumpur premium networking companions](https://klescortlist.com), which present lifestyle-oriented options in a clear and organized manner.
+You can find more information about such services through platforms like [Kuala Lumpur premium networking companions](https://klescortlist.org), which present lifestyle-oriented options in a clear and organized manner.
 
 ## Who Can Benefit from These Services?
 
