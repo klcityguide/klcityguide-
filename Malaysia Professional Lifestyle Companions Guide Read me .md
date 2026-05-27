@@ -62,7 +62,7 @@ Selecting the right companion is essential for a positive and professional exper
 - **Experience**: Prior experience in social or corporate settings is beneficial
 - **Reviews and Reputation**: Feedback from previous clients can offer valuable insights
 
-For those seeking reliable platforms, you can explore options like [Malaysia professional lifestyle companions](https://klescortlist.net), which provide structured and professional listings designed to maintain safety and transparency.
+For those seeking reliable platforms, you can explore options like [Malaysia professional lifestyle companions](https://klescortlist.org), which provide structured and professional listings designed to maintain safety and transparency.
 
 ## Safety and Ethical Considerations
 
