@@ -1,4 +1,4 @@
-Visiting Kuala Lumpur is an exciting experience filled with culture, cuisine, and vibrant city life. For travelers seeking convenience, local insights, and personalized assistance, **[KL city companion services for visitors](https://klescortlist.net)** can offer a helpful solution. These services are designed to enhance your stay by providing guidance, support, and companionship in a safe, respectful, and professional manner.
+Visiting Kuala Lumpur is an exciting experience filled with culture, cuisine, and vibrant city life. For travelers seeking convenience, local insights, and personalized assistance, **[KL city companion services for visitors](https://klescortlist.org)** can offer a helpful solution. These services are designed to enhance your stay by providing guidance, support, and companionship in a safe, respectful, and professional manner.
 
 ## Understanding Companion Services in Kuala Lumpur
 
