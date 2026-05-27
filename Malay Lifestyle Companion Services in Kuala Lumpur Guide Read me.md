@@ -61,7 +61,7 @@ When looking for companionship services in Kuala Lumpur, professionalism and tra
 
 A reputable platform will clearly explain the nature of its services, expectations, and guidelines. For example, some directories help people connect with verified providers offering companionship for social activities and lifestyle support.
 
-One example is **[Malay lifestyle companion services in Kuala Lumpur](https://klescortlist.net)**, which provides a platform where users can explore profiles and learn more about available companionship options in the city.
+One example is **[Malay lifestyle companion services in Kuala Lumpur](https://klescortlist.org)**, which provides a platform where users can explore profiles and learn more about available companionship options in the city.
 
 When evaluating such platforms, consider the following:
 
