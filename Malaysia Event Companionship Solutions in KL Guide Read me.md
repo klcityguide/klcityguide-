@@ -60,7 +60,7 @@ Well-established providers emphasize ethical standards, privacy, and clear agree
 ### ✔ Discretion
 Confidentiality and professionalism are essential in maintaining trust between all parties.
 
-For those researching reliable platforms and structured listings, information about **[Malaysia event companionship solutions](https://klescortlist.com)** can help clarify how these services are organized in Kuala Lumpur.
+For those researching reliable platforms and structured listings, information about **[Malaysia event companionship solutions](https://klescortlist.org)** can help clarify how these services are organized in Kuala Lumpur.
 
 ## How to Choose the Right Companion for an Event
 
