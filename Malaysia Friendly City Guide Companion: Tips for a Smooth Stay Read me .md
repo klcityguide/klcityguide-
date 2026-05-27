@@ -47,7 +47,7 @@ Discuss expectations, schedules, and boundaries before finalizing the booking. T
 ### Respect Privacy and Professionalism
 A professional companion service prioritizes discretion, professionalism, and respect. Treating the service with courtesy ensures a positive and smooth engagement.
 
-For detailed listings and verified services, readers can explore trusted platforms that offer **[Malaysia friendly city guide companion](https://klescortlist.com)** services.
+For detailed listings and verified services, readers can explore trusted platforms that offer **[Malaysia friendly city guide companion](https://klescortlist.org)** services.
 
 ## Recommended Activities with a City Guide Companion
 
