@@ -56,7 +56,9 @@ Look for platforms that offer:
 - Transparent booking processes and policies  
 - Emphasis on respectful, lawful interactions  
 
-One example of an online directory that organizes such lifestyle support services is [KL Malay personal companion booking)](https://klescortlist.com), which presents information in a structured and user-friendly way. Always read terms carefully and ensure the platform aligns with your expectations.
+One example of an online directory that organizes such lifestyle support services is [KL Malay personal companion booking)](https://klescortlist.org
+<img width="209" height="25" alt="image" src="https://github.com/user-attachments/assets/4b317d9a-03f2-4c66-b32f-07a5c806a384" />
+), which presents information in a structured and user-friendly way. Always read terms carefully and ensure the platform aligns with your expectations.
 
 
 ## Professional Etiquette and Responsible Use
