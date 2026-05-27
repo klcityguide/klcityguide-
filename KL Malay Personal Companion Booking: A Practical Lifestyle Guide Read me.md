@@ -58,7 +58,7 @@ Professional platforms provide clear information about:
 - Code of conduct  
 - Privacy and discretion policies  
 
-For readers looking for organized information and service listings, resources discussing **[KL Malay personal companion booking](https://klescortlist.com)** can offer structured guidance in a responsible manner.
+For readers looking for organized information and service listings, resources discussing **[KL Malay personal companion booking](https://klescortlist.corg)** can offer structured guidance in a responsible manner.
 
 ## Safety, Respect, and Professional Standards
 
